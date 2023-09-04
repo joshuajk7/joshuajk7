@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @joshuajk7, aka Josh Kim
-- 👀 I’m interested in computer science
+- 👀 I’m interested in everything awesome!
 - 🌱 I’m currently learning computer science at Oregon State University
 - 📫 How to reach me ... You can reach me through my profile
 
